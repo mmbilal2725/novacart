@@ -1,2 +1,0 @@
-# novacart privacy policy
-
